@@ -45,7 +45,6 @@ Lastly, the don'ts on ponytown
 - Confront us or peer pressure us to remember something that we can't remember, you will get blocked for this fuckface.
 
 ANYWAYS, that's all! Thanks for reading
-Here's our patreon: https://www.patreon.com/bittersweetlycollective
 
 ![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)
 
