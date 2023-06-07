@@ -11,7 +11,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 - We pet regress, age regress, and age dream so if you're someone who doesn't wish to be around us when that happens, let us know please
 - Our pronouns that we're mostly called by is they/him but other pronouns are fine
 - Did you know we're a vtuber? Wow the more you know! We also do gaming, coding, and animation!
-- Yes.... There is a lot of stamps used... We went overboard a bit
+- Yeah yeah there's a shitload of stamps, we went overboard a bit
 
 
 ![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)
