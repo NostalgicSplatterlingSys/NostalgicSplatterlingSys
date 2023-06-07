@@ -36,7 +36,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 
 ![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)
 
-![image](https://cdn.discordapp.com/attachments/830513236410892319/1115178826029342750/ezgif-4-12257ab90a.gif)![image](https://cdn.discordapp.com/attachments/830513236410892319/1115178476874518578/blinkiesCafe-KI.gif)
+![image](https://cdn.discordapp.com/attachments/830513236410892319/1115942325026295839/ezgif-5-0dfa532cc7.gif)![image](https://cdn.discordapp.com/attachments/830513236410892319/1115178476874518578/blinkiesCafe-KI.gif)
 - Randomly come up and roleplay with us, we only do it with friends, personally ask us if we're wanting to roleplay if you're not one of our friends please, it's just awkward to randomly just do it 
 - Harass us in dms
 - Manipulate our memory with a false lie (you immediately get blocked cunt)
