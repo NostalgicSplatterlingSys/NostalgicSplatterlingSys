@@ -20,6 +20,8 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 
 ![image](https://cdn.discordapp.com/attachments/830513236410892319/1119746482472493148/ezgif-3-62fc57b87a.gif)![image](https://cdn.discordapp.com/attachments/830513236410892319/1118087676344664114/blinkiesCafe-y1.gif)
 - We're overly schitzo paranoid, either that just severely paranoid in general so if we're cautious around you, or acting strange, please keep in mind that it's just due to trauma, it's not your fault, we'd rather have only close friends interact if this happens.
+- If you see us in a Ruv or Thomas skin, we only allow friends to interact when this happens.
+- If you see our discord attached (which will RARELY ever happen so), it's either due to prolly adding someone or some other reason
 - We sometimes may not respond to you (which is totally not your fault, it's probably one of us just not really in a good mood wanting to talk at all or is just feeling introverted)
 - We tend to afk a lot on the game to either stream or draw so it would be wise to whisper us
 - We're a clingy person if you end up becoming our friend lol, keep this mind if you aren't a fan of this
