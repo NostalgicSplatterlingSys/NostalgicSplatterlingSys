@@ -8,46 +8,70 @@
 
 ![image](https://cdn.discordapp.com/attachments/830513236410892319/1113025368476106772/deku_kinnie.png)![image](https://cdn.discordapp.com/attachments/830513236410892319/1113027240180064326/uzi_kinnie.png)![image](https://cdn.discordapp.com/attachments/830513236410892319/1113028449083334696/system.png)![image](https://cdn.discordapp.com/attachments/830513236410892319/1113031180376354896/goofy_sweetheart.png)![image](https://cdn.discordapp.com/attachments/830513236410892319/1113272007501561886/sick_blinky.png)![image](https://cdn.discordapp.com/attachments/830513236410892319/1113596281869320263/BATSHIT_unhinged.png)![image](https://cdn.discordapp.com/attachments/1016255093324132393/1145121482238857306/mistakes.png)![image](https://cdn.discordapp.com/attachments/830513236410892319/1113602502219288627/change.png)
 
-Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must've found this either on one of our ponytown skins, let's start off with some simple stuff
-- Well for one we're part of a system (OSDD-1A), however we don't really mention this in order to blend in
-- We're bodily 20
-- We pet regress, age regress, and age dream so if you're someone who doesn't wish to be around us when that happens, let us know please
-- Our pronouns that we're mostly called by is they/him but other pronouns are fine
-- Did you know we're a vtuber? Wow the more you know! We also do gaming, coding, and animation!
-- Yeah yeah there's a shitload of stamps, we went overboard a bit
+Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must've found this either on one of our ponytown skins, let's start off with some simple stuff Well for one we're part of a system (OSDD-1A), however we don't really mention this in order to blend in
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) We're bodily 20
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) We pet regress, age regress, and age dream so if you're someone who doesn't wish to be around us when that happens, let us know please
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) Our pronouns that we're mostly called by is they/him but other pronouns are fine
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) Did you know we're a vtuber? Wow the more you know! We also do gaming, coding, and animation!
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) Yeah yeah there's a shitload of stamps, we went overboard a bit
 
 
 ![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)
 
 ![image](https://cdn.discordapp.com/attachments/830513236410892319/1119746482472493148/ezgif-3-62fc57b87a.gif)![image](https://cdn.discordapp.com/attachments/830513236410892319/1118087676344664114/blinkiesCafe-y1.gif)
-- We're overly schitzo paranoid/severely paranoid in general so if we're cautious around you, or acting strange, please keep in mind that it's just due to trauma, it's not your fault, we'd rather have only close friends interact if this happens.
-- If you see us in a Ruv or Thomas skin, we only allow friends to interact when this happens.
-- If you see our discord attached (which will RARELY ever happen so), it's either due to prolly adding someone or some other reason
-- We sometimes may not respond to you (which is totally not your fault, it's probably one of us just not really in a good mood wanting to talk at all or is just feeling introverted)
-- We tend to afk a lot on the game to either stream or draw so it would be wise to whisper us
-- We're a clingy person if you end up becoming our friend lol, keep this mind if you aren't a fan of this
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) We're overly schitzo paranoid/severely paranoid in general so if we're cautious around you, or acting strange, please keep in mind that it's just due to trauma, it's not your fault, we'd rather have only close friends interact if this happens.
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) If you see us in a Ruv or Thomas skin, we only allow friends to interact when this happens.
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) If you see our discord attached (which will RARELY ever happen so), it's either due to prolly adding someone or some other reason
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) We sometimes may not respond to you (which is totally not your fault, it's probably one of us just not really in a good mood wanting to talk at all or is just feeling introverted)
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) We tend to afk a lot on the game to either stream or draw so it would be wise to whisper us
+
+![image](https://i.ibb.co/mXrJDVF/ezgif-com-gif-maker-1.gif) We're a clingy person if you end up becoming our friend lol, keep this mind if you aren't a fan of this
 
 ![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)
 
 ![image](https://cdn.discordapp.com/attachments/830513236410892319/1115176351528390706/ezgif-4-dc22d175d5.gif)![image](https://cdn.discordapp.com/attachments/830513236410892319/1115178032454438964/blinkiesCafe-vX.gif)
-- You support MAPS (Or no maps) 
-- You're anti-agere, petre, agedr
-- You're into DDLG/AP/DDLP
-- You're the Catgrave system, Soda sys, Peach milk sys, or are even friends with them. You IMMEDIATELY get blocked from this.
-- You're under 16/17 (Close friends do not apply)
-- You witchunt people (GET a life)
-- You're part of the dangaronpa fandom
-- The basic DNI (cmon)
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) You support MAPS (Or no maps) 
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) You're anti-agere, petre, agedr
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) You're into DDLG/AP/DDLP
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) You're the Catgrave system, Soda sys, Peach milk sys, or are even friends with them. You IMMEDIATELY get blocked from this.
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) You're under 16/17 (Close friends do not apply)
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) You witchunt people (GET a life)
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) You're part of the dangaronpa fandom
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) The basic DNI (cmon)
 
 ![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)
 
 ![image](https://cdn.discordapp.com/attachments/830513236410892319/1115942325026295839/ezgif-5-0dfa532cc7.gif)![image](https://cdn.discordapp.com/attachments/830513236410892319/1116976042544988312/blinkiesCafe-KI.gif)
-- Randomly come up and roleplay with us, we only do it with friends, personally ask us if we're wanting to roleplay if you're not one of our friends please, it's just awkward to randomly just do it 
-- Harass us in dms
-- Manipulate our memory with a false lie (you immediately get blocked cunt)
-- BLATANTLY copy our skins (ONLY CLOSE friends are allowed to)
-- Troll us in skins, you'll only get hidden dumbass lmao
-- Confront us or peer pressure us to remember something that we can't remember, you will get blocked for this fuckface.
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Randomly come up and roleplay with us, we only do it with friends, personally ask us if we're wanting to roleplay if you're not one of our friends please, it's just awkward to randomly just do it 
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Harass us in dms
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Manipulate our memory with a false lie (you immediately get blocked cunt)
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) BLATANTLY copy our skins (ONLY CLOSE friends are allowed to)
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Troll us in skins, you'll only get hidden dumbass lmao
+
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) Confront us or peer pressure us to remember something that we can't remember, you will get blocked for this fuckface.
 
 ![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)![image](https://cdn.discordapp.com/attachments/1014380687480078356/1056292680285552690/dc57m63-313680e5-2068-4d54-8772-b99256f722e2.gif)
 
