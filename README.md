@@ -6,7 +6,7 @@
 
 ![image](https://i.ibb.co/FnCj2sh/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3833303531333233363431.gif) ![image](https://i.ibb.co/jf89TxG/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3833303531333233363431.gif)
 
-![image](https://i.ibb.co/QNcwNfW/deku-kinnie.png)![image](https://i.ibb.co/PCWGf2P/uzi-kinnie.png)![image](https://i.ibb.co/fHqy8SN/system.png)![image](https://i.ibb.co/sHZHXRx/goofy-sweetheart.png)![image](https://i.ibb.co/0hNMvf0/sick-blinky.png)![image](https://i.ibb.co/yk2C1d0/BATSHIT-unhinged.png)![image](https://i.ibb.co/tMChMdn/mistakes.png)![image](https://i.ibb.co/b6DgnMf/change.png)
+![image](https://i.ibb.co/QNcwNfW/deku-kinnie.png)![image](https://i.ibb.co/PCWGf2P/uzi-kinnie.png)![image](https://i.ibb.co/cDTrJ4P/image.png)![image](https://i.ibb.co/sHZHXRx/goofy-sweetheart.png)![image](https://i.ibb.co/0hNMvf0/sick-blinky.png)![image](https://i.ibb.co/yk2C1d0/BATSHIT-unhinged.png)![image](https://i.ibb.co/tMChMdn/mistakes.png)![image](https://i.ibb.co/b6DgnMf/change.png)
 
 Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must've found this either on one of our ponytown skins, let's start off with some simple stuff. Well for one we're part of a system (OSDD-1A), however we don't really mention this in order to blend in
 
