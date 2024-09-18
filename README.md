@@ -1,6 +1,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=22fi2ddkxx4ksq54pirlce6pi&cover_image=true&theme=novatorem&show_offline=false&background_color=ff1259&interchange=true&bar_color_cover=true&bar_color=ff0059)](https://github.com/kittinan/spotify-github-profile)
 
 ![image](https://64.media.tumblr.com/9a1c43e09c42561dabd364864940d62d/43f907734bad1397-73/s500x750/26c464fc6c5bf32b672738251993555978159a1b.gifv)![image](https://64.media.tumblr.com/9a1c43e09c42561dabd364864940d62d/43f907734bad1397-73/s500x750/26c464fc6c5bf32b672738251993555978159a1b.gifv)
+
 ![image](https://i.ibb.co/By3d1Nc/ezgif-4-2a25dd9688.gif)
 
 ![image](https://i.ibb.co/FnCj2sh/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3833303531333233363431.gif) ![image](https://i.ibb.co/jf89TxG/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3833303531333233363431.gif)
