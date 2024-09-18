@@ -18,6 +18,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 
 
 ![image](https://64.media.tumblr.com/9a1c43e09c42561dabd364864940d62d/43f907734bad1397-73/s500x750/26c464fc6c5bf32b672738251993555978159a1b.gifv)![image](https://64.media.tumblr.com/9a1c43e09c42561dabd364864940d62d/43f907734bad1397-73/s500x750/26c464fc6c5bf32b672738251993555978159a1b.gifv)
+
 ![image](https://i.ibb.co/QkVDsbF/ezgif-3-62fc57b87a.gif)![image](https://i.ibb.co/ZK2kG7M/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3833303531333233363431.gif)
 
 - We're overly schitzo paranoid/severely paranoid in general so if we're cautious around you, or acting strange, please keep in mind that it's just due to trauma, it's not your fault, we'd rather have only close friends interact if this happens.
