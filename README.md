@@ -49,7 +49,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 
 ![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5552cb82-6fb8-4c7f-9d29-a10b2e5daf6c/datavue-400e6aa7-3ed5-4ad5-a02d-33b4351dccf3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU1NTJjYjgyLTZmYjgtNGM3Zi05ZDI5LWExMGIyZTVkYWY2Y1wvZGF0YXZ1ZS00MDBlNmFhNy0zZWQ1LTRhZDUtYTAyZC0zM2I0MzUxZGNjZjMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Vc-c9LY8dhKBbkIj--GLf-hF5KSTGEaaMywoq9R5bvw) The basic DNI (cmon)
 
-![image](https://64.media.tumblr.com/9a1c43e09c42561dabd364864940d62d/43f907734bad1397-73/s500x750/26c464fc6c5bf32b672738251993555978159a1b.gifv)![image](https://64.media.tumblr.com/9a1c43e09c42561dabd364864940d62d/43f907734bad1397-73/s500x750/26c464fc6c5bf32b672738251993555978159a1b.gifv)
+![image](https://i.imgur.com/Ap5lN47.gif)![image](https://i.imgur.com/Ap5lN47.gif)
 
 ![image](https://i.ibb.co/dkdRc9G/ezgif-5-0dfa532cc7.gif)![image](https://i.ibb.co/nsx7NPP/blinkies-Cafe-KI.gif)
 
