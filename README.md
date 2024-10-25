@@ -8,7 +8,7 @@
 
 ![image](https://i.imgur.com/CArzcmi.png)![image](https://i.imgur.com/NEuFBvA.png)![](https://i.imgur.com/dQYWa9h.png)![image](https://i.imgur.com/JJHspqj.png)![](https://i.imgur.com/mA35ryW.png)![image](https://i.imgur.com/bnDxMX9.png)![](https://i.imgur.com/feBVXnX.png)![image](https://i.imgur.com/hOOd4cf.png)![](https://i.imgur.com/MYQSKXF.png)![](https://i.imgur.com/Yr8nZgM.png)![image](https://i.imgur.com/kwGhcPQ.png)
 
-Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must've found this either on one of our ponytown skins, let's start off with some simple stuff. Well for one we're part of a system (OSDD-1A), however we don't really mention this in order to blend in
+Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must've found this either on one of our ponytown skins, let's start off with some simple stuff. Well for one we're part of a system (OSDD-1A), however we don't really mention this in order to blend in, so if you've bothered to read everything, now you know (I say thsi cuz nobody bothers reading this ugh)
 
 - We're bodily 20
 - We pet regress, age regress, and age dream so if you're someone who doesn't wish to be around us when that happens, let us know please
