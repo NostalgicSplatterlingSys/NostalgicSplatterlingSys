@@ -14,7 +14,8 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 - We pet regress, age regress, and age dream so if you're someone who doesn't wish to be around us when that happens, let us know please
 - Our pronouns that we're mostly called by is they/him but other pronouns are fine
 - Did you know we're a vtuber? Wow the more you know! We also do gaming, coding, and animation!
-- Yeah yeah there's a shitload of stamps, we went overboard a bit
+- Yeah yeah there's a shitload of stamps, we went overboard a bi
+- Homestuck fans, you're on THIN fucking ice with us, watch it
 
 
 ![image](https://i.imgur.com/Ap5lN47.gif)![image](https://i.imgur.com/Ap5lN47.gif)
