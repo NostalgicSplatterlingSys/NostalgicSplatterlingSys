@@ -15,7 +15,6 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 - Our pronouns that we're mostly called by is they/him but other pronouns are fine
 - Did you know we're a vtuber? Wow the more you know! We also do gaming, coding, and animation!
 - Yeah yeah there's a shitload of stamps, we went overboard a bi
-- Homestuck fans, you're on THIN fucking ice with us, watch it
 
 
 ![image](https://i.imgur.com/Ap5lN47.gif)![image](https://i.imgur.com/Ap5lN47.gif)
@@ -29,6 +28,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 - We tend to afk a lot on the game to either stream or draw so it would be wise to whisper us
 - We're a clingy person if you end up becoming our friend lol, keep this mind if you aren't a fan of this
 - IF YOU SEE SOMEONE WITH A SIMILAR STYLE OR COPIED SKIN, IT'S PROBABLY NOT US! WE ALWAYS HAVE OUR GITHUB OR TWITCH ATTACHED WITH THE NAME ZELDA_ARTEMIS! Please be sure to let our friends or us know ahead if this happens (I guess we're famous now on ponytown if this happens LMFAO)
+-  Homestuck fans, you're on THIN fucking ice with us, watch it
 
 ![image](https://i.imgur.com/Ap5lN47.gif)![image](https://i.imgur.com/Ap5lN47.gif)
 
