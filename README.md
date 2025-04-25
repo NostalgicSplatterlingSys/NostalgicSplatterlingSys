@@ -30,6 +30,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 - We're a clingy person if you end up becoming our friend lol, keep this mind if you aren't a fan of this
 - IF YOU SEE SOMEONE WITH A SIMILAR STYLE OR COPIED SKIN, IT'S PROBABLY NOT US! WE ALWAYS HAVE OUR GITHUB OR TWITCH ATTACHED WITH THE NAME ZELDA_ARTEMIS! Please be sure to let our friends or us know ahead if this happens (I guess we're famous now on ponytown if this happens LMFAO)
 -  Homestuck fans, you're on THIN fucking ice with us, watch it
+-  IF YOU CANNOT LEARN TO BE CLEAR ON YOUR BOUNDARIES (yes this goes for you too friends), DO NOT INTERACT WITH US AND BLOCK US, we will not tolerate your bullshit if we did smthing wrong without being told what we did and we will eat you alive for this. WE'RE clear on our boundaries, but NOT you if you aren't, WORK ON YOURS
 
 ![image](https://i.imgur.com/Ap5lN47.gif)![image](https://i.imgur.com/Ap5lN47.gif)
 
