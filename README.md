@@ -4,11 +4,9 @@
 
 ![image](https://i.ibb.co/By3d1Nc/ezgif-4-2a25dd9688.gif)
 
-![](https://komarev.com/ghpvc/?username=NostalgicSplatterling)
-
 ![image](https://i.ibb.co/FnCj2sh/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3833303531333233363431.gif) ![image](https://i.ibb.co/jf89TxG/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3833303531333233363431.gif)
 
-![image](https://i.imgur.com/CArzcmi.png)![image](https://i.imgur.com/NEuFBvA.png)![](https://i.imgur.com/dQYWa9h.png)![image](https://i.imgur.com/JJHspqj.png)![](https://i.imgur.com/mA35ryW.png)![image](https://i.imgur.com/bnDxMX9.png)![](https://i.imgur.com/feBVXnX.png)![image](https://i.imgur.com/hOOd4cf.png)![](https://i.imgur.com/MYQSKXF.png)![](https://i.imgur.com/Yr8nZgM.png)![image](https://i.imgur.com/kwGhcPQ.png)
+![](https://komarev.com/ghpvc/?username=NostalgicSplatterling) ![image](https://i.imgur.com/CArzcmi.png)![image](https://i.imgur.com/NEuFBvA.png)![](https://i.imgur.com/dQYWa9h.png)![image](https://i.imgur.com/JJHspqj.png)![](https://i.imgur.com/mA35ryW.png)![image](https://i.imgur.com/bnDxMX9.png)![](https://i.imgur.com/feBVXnX.png)![image](https://i.imgur.com/hOOd4cf.png)![](https://i.imgur.com/MYQSKXF.png)![](https://i.imgur.com/Yr8nZgM.png)![image](https://i.imgur.com/kwGhcPQ.png)
 
 Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must've found this either on one of our ponytown skins, let's start off with some simple stuff. Well for one we're part of a system (suspected OSDD-1A), however we don't really mention this in order to blend in, so if you've bothered to read everything, now you know (I say thsi cuz nobody bothers reading this ugh)
 
@@ -19,6 +17,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 - Yeah yeah there's a shitload of stamps, we went overboard a bi
 - I should mention if you're on our friend list, please do not feel hesitant or afraid to cuddle with us if we're with another friend (or our partner)! We enjoy friends sitting with us in general!!! :)
 
+![image](https://i.imgur.com/8Q11XDJ.png)
 
 ![image](https://i.imgur.com/Ap5lN47.gif)![image](https://i.imgur.com/Ap5lN47.gif)
 
