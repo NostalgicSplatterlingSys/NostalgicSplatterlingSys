@@ -10,7 +10,7 @@
 
 Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must've found this either on one of our ponytown skins, let's start off with some simple stuff. Well for one we're part of a system (suspected OSDD-1A), however we don't really mention this in order to blend in, so if you've bothered to read everything, now you know (I say thsi cuz nobody bothers reading this ugh)
 
-- We're bodily 21
+- We're bodily 22
 - We pet regress, age regress, and age dream so if you're someone who doesn't wish to be around us when that happens, let us know please
 - Our pronouns that we're mostly called by is they/him but other pronouns are fine
 - Did you know we're a vtuber? Wow the more you know! We also do gaming, coding, and animation!
