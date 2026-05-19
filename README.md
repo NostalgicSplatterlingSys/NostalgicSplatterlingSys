@@ -33,7 +33,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 -  Homestuck fans, you're on THIN fucking ice with us, watch it
 -  IF YOU CANNOT LEARN TO BE CLEAR ON YOUR BOUNDARIES (yes this goes for you too friends), DO NOT INTERACT WITH US AND BLOCK US, we will not tolerate your bullshit if we did smthing wrong without being told what we did and we will eat you alive for this. WE'RE clear on our boundaries, but NOT you if you aren't, WORK ON YOURS
 -  Our right eye has trouble seeing due to vitrectom and scleral buckle surgery. Go easy on us if we misread your messages!!
--  Those under 16/17 interact with caution, this is just something I'd rather have those keep in mind
+-  Those under 16/17 interact with caution (THIS DOES NOT MEAN DNI, IT JUST MEANS INTERACT WITH CAUTION), this is just something I'd rather have those keep in mind
 
 ![image](https://i.imgur.com/aSp3nn0.gif)
 
