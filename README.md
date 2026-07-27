@@ -29,8 +29,9 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 - We sometimes may not respond to you (which is totally not your fault, it's probably one of us just not really in a good mood wanting to talk at all or is just feeling introverted)
 - We tend to afk a lot on the game to either stream or draw so it would be wise to whisper us
 - We're a clingy person if you end up becoming our friend lol, keep this mind if you aren't a fan of this
-- IF YOU SEE SOMEONE WITH A SIMILAR STYLE OR COPIED SKIN, IT'S PROBABLY NOT US (unless it was a gifted skin)! WE ALWAYS HAVE OUR GITHUB OR TWITCH ATTACHED WITH THE NAME MOODLENEESHA! Please be sure to let our friends or us know ahead if this happens (I guess we're famous now on ponytown if this happens LMFAO)
+- IF YOU SEE SOMEONE WITH A SIMILAR STYLE OR COPIED SKIN, IT'S PROBABLY NOT US (unless it was a gifted skin)! WE ALWAYS HAVE OUR GITHUB ATTACHED WITH THE NAME NOSTALGIC-SPLATTERLING-SYS (Unless any of our alters githubs have our main attached)! Please be sure to let our friends or us know ahead if this happens (I guess we're famous now on ponytown if this happens LMFAO)
 -  Homestuck fans, you're on THIN fucking ice with us, watch it
+-  Default ponies or anything similar will be hidden [(explanation here)](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0). (If you are not a bot and have been hidden on accident, please let us know)
 -  IF YOU CANNOT LEARN TO BE CLEAR ON YOUR BOUNDARIES (yes this goes for you too friends), DO NOT INTERACT WITH US AND BLOCK US, we will not tolerate your bullshit if we did smthing wrong without being told what we did and we will eat you alive for this. WE'RE clear on our boundaries, but NOT you if you aren't, WORK ON YOURS
 -  Our right eye has trouble seeing due to vitrectom and scleral buckle surgery. Go easy on us if we misread your messages!!
 -  Those under 16/17 interact with caution (THIS DOES NOT MEAN DNI, IT JUST MEANS INTERACT WITH CAUTION), this is just something I'd rather have those keep in mind
