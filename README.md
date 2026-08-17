@@ -8,6 +8,7 @@
 
 ![](https://komarev.com/ghpvc/?username=NostalgicSplatterling) ![image](https://i.imgur.com/CArzcmi.png)![image](https://i.imgur.com/NEuFBvA.png)![](https://i.imgur.com/dQYWa9h.png)![image](https://i.imgur.com/JJHspqj.png)![](https://i.imgur.com/mA35ryW.png)![image](https://i.imgur.com/bnDxMX9.png)![](https://i.imgur.com/feBVXnX.png)![image](https://i.imgur.com/hOOd4cf.png)![](https://i.imgur.com/MYQSKXF.png)![](https://i.imgur.com/Yr8nZgM.png)![image](https://i.imgur.com/kwGhcPQ.png)
 
+
 Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must've found this either on one of our ponytown skins, let's start off with some simple stuff. Well for one we're part of a system (suspected OSDD-1A), however we don't really mention this in order to blend in, so if you've bothered to read everything, now you know (I say thsi cuz nobody bothers reading this ugh)
 
 - We're bodily 22
@@ -16,6 +17,12 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 - Did you know we're a vtuber? Wow the more you know! We also do gaming, coding, and animation!
 - Yeah yeah there's a shitload of stamps, we went overboard a bi
 - I should mention if you're on our friend list, please do not feel hesitant or afraid to cuddle with us if we're with another friend (or our partner)! We enjoy friends sitting with us in general!!! :)
+<details>
+<summary><b></b></summary>
+
+[@NostalgicSplatterlingSys](https://github.com/ponychievements) is ponytown’s captain 3 (splatoon 3) !
+
+</details>
 
 ![image](https://i.imgur.com/8Q11XDJ.png)
 
