@@ -45,7 +45,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 -  Default ponies or anything similar will be hidden [(explanation here)](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0). (If you are not a bot and have been hidden on accident, please let us know)
 -  IF YOU CANNOT LEARN TO BE CLEAR ON YOUR BOUNDARIES (yes this goes for you too friends), DO NOT INTERACT WITH US AND BLOCK US, we will not tolerate your bullshit if we did smthing wrong without being told what we did and we will eat you alive for this. WE'RE clear on our boundaries, but NOT you if you aren't, WORK ON YOURS
 -  Our right eye has trouble seeing due to vitrectom and scleral buckle surgery. Go easy on us if we misread your messages!!
--  Those under 16/17 interact with caution (THIS DOES NOT MEAN DNI, IT JUST MEANS INTERACT WITH CAUTION), this is just something I'd rather have those keep in mind. If you're already friends with us you don't have to worry
+-  Those under 16/17 interact with caution. If you're already friends with us you don't have to worry
 
 ![image](https://i.imgur.com/aSp3nn0.gif)
 
