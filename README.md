@@ -21,6 +21,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 <summary><b></b></summary>
 
 [@NostalgicSplatterlingSys](https://github.com/ponychievements) is ponytown’s captain 3 (splatoon 3) !
+[@NostalgicSplatterlingSys](https://github.com/pt-fashion) ponytown's Myth Cuphead
 
 </details>
 
