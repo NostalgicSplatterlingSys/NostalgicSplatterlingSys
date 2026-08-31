@@ -23,6 +23,8 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 [@NostalgicSplatterlingSys](https://github.com/ponychievements) is ponytown’s captain 3 (splatoon 3) !
 <br>
 [@NostalgicSplatterlingSys](https://github.com/pt-fashion) ponytown's Myth Cuphead
+<br>
+[@NostalgicSplatterlingSys](https://github.com/pt-hall-of-media) is PonyTowns Gildedguy , Soulvester , and a veteran !
 
 </details>
 
