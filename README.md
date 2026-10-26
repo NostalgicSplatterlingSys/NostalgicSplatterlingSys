@@ -28,7 +28,7 @@ Hi there, call me by Pen, Cherri, Captain or Zelda I don't really mind, you must
 <br>
 [@NostalgicSplatterlingSys](https://github.com/kaotown) is motm cuphead's biggest fan! (◡◕⏖◕)ᑐ🝐 ⠁⭒*.✩
 <br>
-[@NostalgicSplatterlingSys](https://github.com/THE-TEMPIST) is The Tempest’sㅤMyth! Cuphead (MYTH OF THE MACHINE)
+[@NostalgicSplatterlingSys](https://github.com/THE-TEMPIST) is The Tempest’s Myth! Cuphead (MYTH OF THE MACHINE)
 
 
 </details>
